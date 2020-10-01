@@ -1,4 +1,4 @@
-### Hi, my name is [Shin Alexandre Koseki](https://shinkoseki.com) 
+### [Shin Alexandre Koseki](https://shinkoseki.com) 
 
 I am an urban designer, policy-maker, coder, co-founder of the Paris-based urban planning cooperative [Chôros](https://choros.place), and co-founder of the European digital cooperative Data Think! My work links urban planning, social theory and new digital research practices in social science and the humanities.
 
